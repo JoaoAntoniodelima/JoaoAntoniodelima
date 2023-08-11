@@ -1,6 +1,6 @@
 - oi sou joão 
 - 👀meus intereses são conseguir melhorarar na tecnologia
-- 🌱 quero mmostrar meus progetos 
+- 🌱 quero mostrar meus progetos 
 - 💞️ gosto de colaborar na realidade 
 - 📫 vim aqui para aprender
 - sou estudante e pretendo conhecer melhor
